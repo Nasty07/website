@@ -1,3 +1,2 @@
-### Contact
-
-You can try contacting me on discord - Nasty#8148
+## Contact:
+Reach me on Discord => Nasty#8148
